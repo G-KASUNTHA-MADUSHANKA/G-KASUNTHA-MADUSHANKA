@@ -1,4 +1,4 @@
-- 👋 Hi, I’m G-KASUNTHA-MADUSHANKA
+- 👋 Hi, I’m KASUNTHA MADUSHANKA
 - 👀 I’m interested in Coding.
 - 🌱 I’m currently learning Esoft Metro Campus - Gampaha
 - 💞️ I’m looking to collaborate on ...
